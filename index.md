@@ -21,12 +21,11 @@
 ### 2022-04-17
 
 * [20220417-01-晓观天下：上海浦东发“告全体居民书”](https://www.asuswebstorage.com/navigate/a/#/s/E28F171094A041549C04BA5728FDF9CBY)
+
+### 2022-04-17
+
+* [20220417-01-晓观天下：上海浦东发“告全体居民书”](https://www.asuswebstorage.com/navigate/a/#/s/E28F171094A041549C04BA5728FDF9CBY)
 * [20220417-02-晓观天下：又一城！苏州也宣布实行封控](https://www.asuswebstorage.com/navigate/a/#/s/0C520BFD5EA64D8C99EB280E9C942CFEY)
-
----
-
-### 赵晓证道分享
-**[4月10日“不许拜偶像”](https://ipfs.slang.cx/ipfs/bafybeid7ievls2tqq5m4dplgptxb3xjucugm7a5fakmo2fx6uge7qla3fe/0410-%E4%B8%8D%E8%AE%B8%E6%8B%9C%E5%81%B6%E5%83%8F.mp3)**
 
 ---
 
@@ -34,6 +33,8 @@
 **[4月7日战争启示录第3集：东正教徒普京与第三类崇拜之问答环节](https://ipfs.slang.cx/ipfs/bafybeices3mu4oh4bmucmpscikppq3viagqnigjitayvrkbuj4srkfgdre/%E6%88%98%E4%BA%89%E5%90%AF%E7%A4%BA%E5%BD%95%E7%AC%AC3%E9%9B%86%EF%BC%9A%E4%B8%9C%E6%AD%A3%E6%95%99%E5%BE%92%E6%99%AE%E4%BA%AC%E4%B8%8E%E7%AC%AC%E4%B8%89%E7%B1%BB%E5%B4%87%E6%8B%9C%E4%B9%8B%E9%97%AE%E7%AD%94%E7%8E%AF%E8%8A%82.mp4)**
 
 **[关于三类偶像](https://ipfs.slang.cx/ipfs/bafybeief52cuts3yg7yxorip4e6sg2tmics66tnp4gbae3ijhswkcvofty/%E5%85%B3%E4%BA%8E%E4%B8%89%E7%B1%BB%E5%81%B6%E5%83%8F.mp4)**
+
+**[第三类偶像（文字版）](https://www.asuswebstorage.com/navigate/a/#/s/7EC0E20540204E4A9A9653E584F2D0B6Y)**
 
 ---
 
