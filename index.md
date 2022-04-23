@@ -8,6 +8,14 @@
 
 ---
 
+### 为神州祷告
+
+**[为神州祷告：上集](https://www.asuswebstorage.com/navigate/a/#/s/152A89D1A8DC4C5286CF9EDA57189A52Y)**
+
+**[为神州祷告：下集](https://www.asuswebstorage.com/navigate/a/#/s/504109DB64C24890B07C54D74E957EE9Y)**
+
+---
+
 ### 赵晓问答
 
 **[战争启示录第3集之问答环节](https://ipfs.slang.cx/ipfs/bafybeices3mu4oh4bmucmpscikppq3viagqnigjitayvrkbuj4srkfgdre/%E6%88%98%E4%BA%89%E5%90%AF%E7%A4%BA%E5%BD%95%E7%AC%AC3%E9%9B%86%EF%BC%9A%E4%B8%9C%E6%AD%A3%E6%95%99%E5%BE%92%E6%99%AE%E4%BA%AC%E4%B8%8E%E7%AC%AC%E4%B8%89%E7%B1%BB%E5%B4%87%E6%8B%9C%E4%B9%8B%E9%97%AE%E7%AD%94%E7%8E%AF%E8%8A%82.mp4)**
