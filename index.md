@@ -2,6 +2,11 @@
 
 ### 原创文章
 
+
+**[赵晓：国家转化与天国的福音](https://www.asuswebstorage.com/navigate/a/#/s/F79BEE227CB74D488283DDDBB21A540BY)**
+
+**[赵晓：职场转化从每个人的灵魂改变开始](https://www.asuswebstorage.com/navigate/a/#/s/2A1361D8E3CD4E51A76C4C8E76CCE614Y)**
+
 **[赵晓：宗教是信仰最大的敌人](https://www.asuswebstorage.com/navigate/a/#/s/997625016DC54BF89D060569FD1947DDY)**
 
 **[赵晓：国度企业与中国转化的关键时刻](https://www.asuswebstorage.com/navigate/a/#/s/F6C289BCDD8744F28B9A79671057CDEBY)**
