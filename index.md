@@ -10,9 +10,9 @@
 
 ### 为神州祷告
 
-**[为神州祷告：上集](https://www.asuswebstorage.com/navigate/a/#/s/152A89D1A8DC4C5286CF9EDA57189A52Y)**
+**[为神州祷告-上](https://www.asuswebstorage.com/navigate/a/#/s/152A89D1A8DC4C5286CF9EDA57189A52Y)**
 
-**[为神州祷告：下集](https://www.asuswebstorage.com/navigate/a/#/s/504109DB64C24890B07C54D74E957EE9Y)**
+**[为神州祷告-下](https://www.asuswebstorage.com/navigate/a/#/s/504109DB64C24890B07C54D74E957EE9Y)**
 
 ---
 
