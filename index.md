@@ -3,6 +3,8 @@
 ### 原创文章
 
 
+**[赵晓：西方三个文明及中国的文明转型](https://www.asuswebstorage.com/navigate/a/#/s/E926F8A362A04067B25E244A8C6D57A9Y)**
+
 **[赵晓：国家转化与天国的福音](https://www.asuswebstorage.com/navigate/a/#/s/F79BEE227CB74D488283DDDBB21A540BY)**
 
 **[赵晓：职场转化从每个人的灵魂改变开始](https://www.asuswebstorage.com/navigate/a/#/s/2A1361D8E3CD4E51A76C4C8E76CCE614Y)**
