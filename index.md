@@ -2,6 +2,8 @@
 
 ### 原创文章
 
+**[赵晓：得胜与顺服（音频）](https://www.asuswebstorage.com/navigate/a/#/s/3FDA418B17344047A8E82085CBA7F23AY)**
+
 **[赵晓：天国的子民如何爱地上的国家](https://www.asuswebstorage.com/navigate/a/#/s/8550B920D25A413C8B59A14C166D54C6Y)**
 
 **[赵晓：西方三个文明及中国的文明转型](https://www.asuswebstorage.com/navigate/a/#/s/E926F8A362A04067B25E244A8C6D57A9Y)**
