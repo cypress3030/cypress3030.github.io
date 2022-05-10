@@ -2,6 +2,8 @@
 
 ### 原创文章
 
+**[赵晓：十诫是人类法律与文明的基石（音频）](https://www.asuswebstorage.com/navigate/a/#/s/CF7C12762272413C89894940FECB0E4EY)**
+
 **[赵晓：人民为什么支持希特勒（音频）](https://www.asuswebstorage.com/navigate/a/#/s/1C47F0F9D4D34224BC9CDDF8A1AF8CF6Y)**
 
 **[赵晓：信YS得自由！](https://www.asuswebstorage.com/navigate/a/#/s/727844E44F254ABFA15C740467BA2689Y)**
