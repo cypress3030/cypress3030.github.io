@@ -36,7 +36,11 @@
 
 ### 赵晓问答
 
-**[经济学不相信阴谋论-问答环节（视频版）](https://www.asuswebstorage.com/navigate/a/#/s/D958F0DF20DC4813B02E6142E8FD46E3Y)**
+**[无论在哪里都要做祂的好管家（视频）](https://www.asuswebstorage.com/navigate/a/#/s/55501482AF0D4F6D932F1D61E598D40DY)**
+
+**[祂来的日子没有人知道（视频）](https://www.asuswebstorage.com/navigate/a/#/s/A2D6F0C682A845E48551F5E05AAEFD6AY)**
+
+**[用生命影响生命（视频）](https://www.asuswebstorage.com/navigate/a/#/s/9E3F69342190498CB9C1230324B5DA1BY)**
 
 **[战争启示录第3集-问答环节（视频版）](https://ipfs.slang.cx/ipfs/bafybeices3mu4oh4bmucmpscikppq3viagqnigjitayvrkbuj4srkfgdre/%E6%88%98%E4%BA%89%E5%90%AF%E7%A4%BA%E5%BD%95%E7%AC%AC3%E9%9B%86%EF%BC%9A%E4%B8%9C%E6%AD%A3%E6%95%99%E5%BE%92%E6%99%AE%E4%BA%AC%E4%B8%8E%E7%AC%AC%E4%B8%89%E7%B1%BB%E5%B4%87%E6%8B%9C%E4%B9%8B%E9%97%AE%E7%AD%94%E7%8E%AF%E8%8A%82.mp4)**
 
