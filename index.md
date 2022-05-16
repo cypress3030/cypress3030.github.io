@@ -8,7 +8,7 @@
 
 **[赵晓：人民为什么支持希特勒（音频）](https://www.asuswebstorage.com/navigate/a/#/s/1C47F0F9D4D34224BC9CDDF8A1AF8CF6Y)**
 
-**[赵晓：信YS得自由！](https://www.asuswebstorage.com/navigate/a/#/s/727844E44F254ABFA15C740467BA2689Y)**
+**[赵晓：信耶稣得自由！](https://www.asuswebstorage.com/navigate/a/#/s/727844E44F254ABFA15C740467BA2689Y)**
 
 **[赵晓：得胜与顺服（音频）](https://www.asuswebstorage.com/navigate/a/#/s/3FDA418B17344047A8E82085CBA7F23AY)**
 
