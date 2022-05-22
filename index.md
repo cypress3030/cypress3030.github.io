@@ -4,6 +4,16 @@
 
 **[赵晓：十诫是人类法律与文明的基石（音频）](https://www.asuswebstorage.com/navigate/a/#/s/CF7C12762272413C89894940FECB0E4EY)**
 
+**[赵晓：怎么才能解救经济（视频）](https://www.asuswebstorage.com/navigate/a/#/s/97D8FDA2CD7E4FF7BB79B541E4DA006BY)**
+
+**[赵晓：以怎样的心态面对疫情封城（视频）](https://www.asuswebstorage.com/navigate/a/#/s/19F7568E171643E08BB4135C3B65B3C5Y)**
+
+**[赵晓：如何认识政教分离和尽公民的本分（视频）](https://www.asuswebstorage.com/navigate/a/#/s/237B72BFED484B3E9BC07810A5317880Y)**
+
+**[赵晓：如何明白自己的呼召（视频）](https://www.asuswebstorage.com/navigate/a/#/s/1CB44F97622A4E3FB7E41E20DE94F2CEY)**
+
+**[赵晓：民主制度是否可以限制专制（视频）](https://www.asuswebstorage.com/navigate/a/#/s/96FD82F10A6E44E7BA057A48A512F1D4Y)**
+
 **[赵晓：警惕第三类偶像](https://www.asuswebstorage.com/navigate/a/#/s/7EC0E20540204E4A9A9653E584F2D0B6Y)**
 
 **[赵晓：人民为什么支持希特勒（音频）](https://www.asuswebstorage.com/navigate/a/#/s/1C47F0F9D4D34224BC9CDDF8A1AF8CF6Y)**
