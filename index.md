@@ -1,50 +1,36 @@
+### 香柏新媒体原创
 
+**[十诫是人类法律与文明的基石（音频）](https://www.asuswebstorage.com/navigate/a/#/s/CF7C12762272413C89894940FECB0E4EY)**
 
-### 原创文章
+**[怎么才能解救经济（视频）](https://www.asuswebstorage.com/navigate/a/#/s/97D8FDA2CD7E4FF7BB79B541E4DA006BY)**
 
-**[赵晓：十诫是人类法律与文明的基石（音频）](https://www.asuswebstorage.com/navigate/a/#/s/CF7C12762272413C89894940FECB0E4EY)**
+**[以怎样的心态面对疫情封城（视频）](https://www.asuswebstorage.com/navigate/a/#/s/19F7568E171643E08BB4135C3B65B3C5Y)**
 
-**[赵晓：怎么才能解救经济（视频）](https://www.asuswebstorage.com/navigate/a/#/s/97D8FDA2CD7E4FF7BB79B541E4DA006BY)**
+**[如何认识政教分离和尽公民的本分（视频）](https://www.asuswebstorage.com/navigate/a/#/s/237B72BFED484B3E9BC07810A5317880Y)**
 
-**[赵晓：以怎样的心态面对疫情封城（视频）](https://www.asuswebstorage.com/navigate/a/#/s/19F7568E171643E08BB4135C3B65B3C5Y)**
+**[如何明白自己的呼召（视频）](https://www.asuswebstorage.com/navigate/a/#/s/1CB44F97622A4E3FB7E41E20DE94F2CEY)**
 
-**[赵晓：如何认识政教分离和尽公民的本分（视频）](https://www.asuswebstorage.com/navigate/a/#/s/237B72BFED484B3E9BC07810A5317880Y)**
+**[民主制度是否可以限制专制（视频）](https://www.asuswebstorage.com/navigate/a/#/s/96FD82F10A6E44E7BA057A48A512F1D4Y)**
 
-**[赵晓：如何明白自己的呼召（视频）](https://www.asuswebstorage.com/navigate/a/#/s/1CB44F97622A4E3FB7E41E20DE94F2CEY)**
+**[警惕第三类偶像](https://www.asuswebstorage.com/navigate/a/#/s/7EC0E20540204E4A9A9653E584F2D0B6Y)**
 
-**[赵晓：民主制度是否可以限制专制（视频）](https://www.asuswebstorage.com/navigate/a/#/s/96FD82F10A6E44E7BA057A48A512F1D4Y)**
+**[人民为什么支持希特勒（音频）](https://www.asuswebstorage.com/navigate/a/#/s/1C47F0F9D4D34224BC9CDDF8A1AF8CF6Y)**
 
-**[赵晓：警惕第三类偶像](https://www.asuswebstorage.com/navigate/a/#/s/7EC0E20540204E4A9A9653E584F2D0B6Y)**
+**[信耶稣得自由！](https://www.asuswebstorage.com/navigate/a/#/s/727844E44F254ABFA15C740467BA2689Y)**
 
-**[赵晓：人民为什么支持希特勒（音频）](https://www.asuswebstorage.com/navigate/a/#/s/1C47F0F9D4D34224BC9CDDF8A1AF8CF6Y)**
+**[得胜与顺服（音频）](https://www.asuswebstorage.com/navigate/a/#/s/3FDA418B17344047A8E82085CBA7F23AY)**
 
-**[赵晓：信耶稣得自由！](https://www.asuswebstorage.com/navigate/a/#/s/727844E44F254ABFA15C740467BA2689Y)**
+**[天国的子民如何爱地上的国家](https://www.asuswebstorage.com/navigate/a/#/s/8550B920D25A413C8B59A14C166D54C6Y)**
 
-**[赵晓：得胜与顺服（音频）](https://www.asuswebstorage.com/navigate/a/#/s/3FDA418B17344047A8E82085CBA7F23AY)**
+**[西方三个文明及中国的文明转型](https://www.asuswebstorage.com/navigate/a/#/s/E926F8A362A04067B25E244A8C6D57A9Y)**
 
-**[赵晓：天国的子民如何爱地上的国家](https://www.asuswebstorage.com/navigate/a/#/s/8550B920D25A413C8B59A14C166D54C6Y)**
+**[国家转化与天国的福音](https://www.asuswebstorage.com/navigate/a/#/s/F79BEE227CB74D488283DDDBB21A540BY)**
 
-**[赵晓：西方三个文明及中国的文明转型](https://www.asuswebstorage.com/navigate/a/#/s/E926F8A362A04067B25E244A8C6D57A9Y)**
+**[职场转化从每个人的灵魂改变开始](https://www.asuswebstorage.com/navigate/a/#/s/2A1361D8E3CD4E51A76C4C8E76CCE614Y)**
 
-**[赵晓：国家转化与天国的福音](https://www.asuswebstorage.com/navigate/a/#/s/F79BEE227CB74D488283DDDBB21A540BY)**
+**[宗教是信仰最大的敌人](https://www.asuswebstorage.com/navigate/a/#/s/997625016DC54BF89D060569FD1947DDY)**
 
-**[赵晓：职场转化从每个人的灵魂改变开始](https://www.asuswebstorage.com/navigate/a/#/s/2A1361D8E3CD4E51A76C4C8E76CCE614Y)**
-
-**[赵晓：宗教是信仰最大的敌人](https://www.asuswebstorage.com/navigate/a/#/s/997625016DC54BF89D060569FD1947DDY)**
-
-**[赵晓：国度企业与中国转化的关键时刻](https://www.asuswebstorage.com/navigate/a/#/s/F6C289BCDD8744F28B9A79671057CDEBY)**
-
----
-
-### 为神州祷告
-
-**[为神州祷告-上](https://www.asuswebstorage.com/navigate/a/#/s/152A89D1A8DC4C5286CF9EDA57189A52Y)**
-
-**[为神州祷告-下](https://www.asuswebstorage.com/navigate/a/#/s/504109DB64C24890B07C54D74E957EE9Y)**
-
----
-
-### 赵晓问答
+**[国度企业与中国转化的关键时刻](https://www.asuswebstorage.com/navigate/a/#/s/F6C289BCDD8744F28B9A79671057CDEBY
 
 **[无论在哪里都要做祂的好管家（视频）](https://www.asuswebstorage.com/navigate/a/#/s/55501482AF0D4F6D932F1D61E598D40DY)**
 
@@ -55,6 +41,14 @@
 **[战争启示录第3集-问答环节（视频版）](https://ipfs.slang.cx/ipfs/bafybeices3mu4oh4bmucmpscikppq3viagqnigjitayvrkbuj4srkfgdre/%E6%88%98%E4%BA%89%E5%90%AF%E7%A4%BA%E5%BD%95%E7%AC%AC3%E9%9B%86%EF%BC%9A%E4%B8%9C%E6%AD%A3%E6%95%99%E5%BE%92%E6%99%AE%E4%BA%AC%E4%B8%8E%E7%AC%AC%E4%B8%89%E7%B1%BB%E5%B4%87%E6%8B%9C%E4%B9%8B%E9%97%AE%E7%AD%94%E7%8E%AF%E8%8A%82.mp4)**
 
 **[关于三类偶像（视频版）](https://ipfs.slang.cx/ipfs/bafybeief52cuts3yg7yxorip4e6sg2tmics66tnp4gbae3ijhswkcvofty/%E5%85%B3%E4%BA%8E%E4%B8%89%E7%B1%BB%E5%81%B6%E5%83%8F.mp4)**
+
+---
+
+### 为神州祷告
+
+**[为神州祷告-上](https://www.asuswebstorage.com/navigate/a/#/s/152A89D1A8DC4C5286CF9EDA57189A52Y)**
+
+**[为神州祷告-下](https://www.asuswebstorage.com/navigate/a/#/s/504109DB64C24890B07C54D74E957EE9Y)**
 
 ---
 
