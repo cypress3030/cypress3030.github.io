@@ -30,7 +30,7 @@
 
 **[宗教是信仰最大的敌人](https://www.asuswebstorage.com/navigate/a/#/s/997625016DC54BF89D060569FD1947DDY)**
 
-**[国度企业与中国转化的关键时刻](https://www.asuswebstorage.com/navigate/a/#/s/F6C289BCDD8744F28B9A79671057CDEBY
+**[国度企业与中国转化的关键时刻](https://www.asuswebstorage.com/navigate/a/#/s/F6C289BCDD8744F28B9A79671057CDEBY)**
 
 **[无论在哪里都要做祂的好管家（视频）](https://www.asuswebstorage.com/navigate/a/#/s/55501482AF0D4F6D932F1D61E598D40DY)**
 
