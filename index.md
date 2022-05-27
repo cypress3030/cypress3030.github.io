@@ -2,6 +2,10 @@
 
 **[十诫是人类法律与文明的基石（音频）](https://www.asuswebstorage.com/navigate/a/#/s/CF7C12762272413C89894940FECB0E4EY)**
 
+**[人、文化、制度与“约”（视频）](https://www.asuswebstorage.com/navigate/a/#/s/83371EDD1EAE42E6A8270D4AF01463C8Y)**
+
+**[活石被建造成灵宫（视频）](https://www.asuswebstorage.com/navigate/a/#/s/BD24066403974973A3EDE762D6099027Y)**
+
 **[怎么才能解救经济（视频）](https://www.asuswebstorage.com/navigate/a/#/s/97D8FDA2CD7E4FF7BB79B541E4DA006BY)**
 
 **[以怎样的心态面对疫情封城（视频）](https://www.asuswebstorage.com/navigate/a/#/s/19F7568E171643E08BB4135C3B65B3C5Y)**
