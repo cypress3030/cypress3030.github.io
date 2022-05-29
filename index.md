@@ -1,4 +1,4 @@
-### 香柏新媒体原创
+###香柏新媒体
 
 <img src="https://ncstatic.clewm.net/free/2022/0529/22/009ef0bce74fd8bd06e108dc7bb3b914.jpg">
 
