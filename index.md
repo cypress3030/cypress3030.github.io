@@ -50,7 +50,7 @@
 
 ---
 
-[![](https://pic.imgdb.cn/item/6294ba990947543129255f57.png)](https://pic.imgdb.cn/item/6294ba990947543129255f57.png)
+[![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
 
 ### 为神州祷告
 
@@ -68,6 +68,8 @@
 
 ---
 
+[![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
+
 ### 中国当代视角艺术中的终极关怀
 
 **[中国当代视角艺术中的终极关怀-上](https://ipfs.slang.cx/ipfs/bafybeienhfzn4lpt6kke56pydg7f7vl3nng6yqkgzfug46gkowytzomxni/%E4%B8%AD%E5%9B%BD%E5%BD%93%E4%BB%A3%E8%A7%86%E8%A7%92%E8%89%BA%E6%9C%AF%E4%B8%AD%E7%9A%84%E7%BB%88%E6%9E%81%E5%85%B3%E6%80%80/%E4%B8%AD%E5%9B%BD%E5%BD%93%E4%BB%A3%E8%A7%86%E8%A7%92%E8%89%BA%E6%9C%AF%E4%B8%AD%E7%9A%84%E7%BB%88%E6%9E%81%E5%85%B3%E6%80%80-%E4%B8%8A.mp4)**
@@ -83,6 +85,8 @@
 **[不要惧怕](https://ipfs.slang.cx/ipfs/bafybeicazzhfqn7eafn7svbqqczhmbw4x2lwkn3pow3sxh3c5bflu4df2a/%E6%96%B0%E5%BB%BA%E6%96%87%E4%BB%B6%E5%A4%B9/%E2%80%9D%E4%B8%8D%E8%A6%81%E6%83%A7%E6%80%95%E2%80%9C%EF%BC%88%E4%B8%BB%E6%97%A5%E4%BF%A1%E6%81%AF%E5%88%86%E4%BA%AB%EF%BC%89.mp4)**
 
 ---
+
+[![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
 
 ### 倚天屠龙
 
@@ -123,7 +127,7 @@
 
 ---
 
-[![](https://pic.imgdb.cn/item/6294b90d0947543129232872.jpg)](https://pic.imgdb.cn/item/6294b90d0947543129232872.jpg)
+[![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
 
 ### 2022云上春晚，在地如天
 
