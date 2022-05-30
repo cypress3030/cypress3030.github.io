@@ -50,6 +50,8 @@
 
 ---
 
+[![](https://pic.imgdb.cn/item/6294ba990947543129255f57.png)](https://pic.imgdb.cn/item/6294ba990947543129255f57.png)
+
 ### 为神州祷告
 
 **[为神州祷告-上](https://www.asuswebstorage.com/navigate/a/#/s/152A89D1A8DC4C5286CF9EDA57189A52Y)**
