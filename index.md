@@ -1,7 +1,5 @@
 ###香柏新媒体
 
-<img src="https://ncstatic.clewm.net/free/2022/0529/22/009ef0bce74fd8bd06e108dc7bb3b914.jpg">
-
 **[十诫是人类法律与文明的基石（音频）](https://www.asuswebstorage.com/navigate/a/#/s/CF7C12762272413C89894940FECB0E4EY)**
 
 **[人、文化、制度与“约”（视频）](https://www.asuswebstorage.com/navigate/a/#/s/83371EDD1EAE42E6A8270D4AF01463C8Y)**
