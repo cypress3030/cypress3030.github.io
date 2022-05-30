@@ -26,6 +26,8 @@
 
 **[得胜与顺服（音频）](https://www.asuswebstorage.com/navigate/a/#/s/3FDA418B17344047A8E82085CBA7F23AY)**
 
+![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
+
 **[天国的子民如何爱地上的国家](https://www.asuswebstorage.com/navigate/a/#/s/8550B920D25A413C8B59A14C166D54C6Y)**
 
 **[西方三个文明及中国的文明转型](https://www.asuswebstorage.com/navigate/a/#/s/E926F8A362A04067B25E244A8C6D57A9Y)**
@@ -50,7 +52,7 @@
 
 ---
 
-[![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
+![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
 
 ### 为神州祷告
 
@@ -68,8 +70,6 @@
 
 ---
 
-[![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
-
 ### 中国当代视角艺术中的终极关怀
 
 **[中国当代视角艺术中的终极关怀-上](https://ipfs.slang.cx/ipfs/bafybeienhfzn4lpt6kke56pydg7f7vl3nng6yqkgzfug46gkowytzomxni/%E4%B8%AD%E5%9B%BD%E5%BD%93%E4%BB%A3%E8%A7%86%E8%A7%92%E8%89%BA%E6%9C%AF%E4%B8%AD%E7%9A%84%E7%BB%88%E6%9E%81%E5%85%B3%E6%80%80/%E4%B8%AD%E5%9B%BD%E5%BD%93%E4%BB%A3%E8%A7%86%E8%A7%92%E8%89%BA%E6%9C%AF%E4%B8%AD%E7%9A%84%E7%BB%88%E6%9E%81%E5%85%B3%E6%80%80-%E4%B8%8A.mp4)**
@@ -86,7 +86,7 @@
 
 ---
 
-[![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
+![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
 
 ### 倚天屠龙
 
@@ -127,7 +127,7 @@
 
 ---
 
-[![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
+![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
 
 ### 2022云上春晚，在地如天
 
