@@ -1,5 +1,3 @@
----
-
 ### 香柏新媒体
 
 **[十诫是人类法律与文明的基石（音频）](https://www.asuswebstorage.com/navigate/a/#/s/CF7C12762272413C89894940FECB0E4EY)**
