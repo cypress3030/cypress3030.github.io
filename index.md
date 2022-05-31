@@ -2,7 +2,6 @@
 
 ![](https://pic.imgdb.cn/item/6294a03709475431290342bc.jpg)
 
-**[基督耶稣里的selflessness和佛教的无我的区别](https://www.asuswebstorage.com/navigate/a/#/s/D601C049DBBF4314BEC206864CF2D3D2Y)**
 
 **[十诫是人类法律与文明的基石（音频）](https://www.asuswebstorage.com/navigate/a/#/s/CF7C12762272413C89894940FECB0E4EY)**
 
@@ -55,6 +54,8 @@
 ---
 
 ![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
+
+**[基督耶稣里的selflessness和佛教的无我的区别](https://www.asuswebstorage.com/navigate/a/#/s/D601C049DBBF4314BEC206864CF2D3D2Y)**
 
 ### 为神州祷告
 
