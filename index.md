@@ -29,6 +29,8 @@
 
 ![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
 
+**[基督耶稣里的selflessness和佛教的无我的区别](https://www.asuswebstorage.com/navigate/a/#/s/D601C049DBBF4314BEC206864CF2D3D2Y)**
+
 **[天国的子民如何爱地上的国家](https://www.asuswebstorage.com/navigate/a/#/s/8550B920D25A413C8B59A14C166D54C6Y)**
 
 **[西方三个文明及中国的文明转型](https://www.asuswebstorage.com/navigate/a/#/s/E926F8A362A04067B25E244A8C6D57A9Y)**
@@ -55,7 +57,6 @@
 
 ![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
 
-**[基督耶稣里的selflessness和佛教的无我的区别](https://www.asuswebstorage.com/navigate/a/#/s/D601C049DBBF4314BEC206864CF2D3D2Y)**
 
 ### 为神州祷告
 
