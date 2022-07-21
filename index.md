@@ -3,7 +3,7 @@
 ![](https://pic.imgdb.cn/item/6294a03709475431290342bc.jpg)
 
 
-**[比特币赚来的钱如何支持事工](https://www.asuswebstorage.com/navigate/a/#/s/ADA73CD5113F453CBBEFD2EEF41F8F51Y)**
+**[比特币赚来的钱如何支持事工？](https://www.asuswebstorage.com/navigate/a/#/s/ADA73CD5113F453CBBEFD2EEF41F8F51Y)**
 
 **[我应该继续挑战做大我的生意吗？](https://www.asuswebstorage.com/navigate/a/#/s/90591C677BB74462923CEA4A74BB8FF8Y)**
 
