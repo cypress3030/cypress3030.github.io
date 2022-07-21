@@ -3,11 +3,17 @@
 ![](https://pic.imgdb.cn/item/6294a03709475431290342bc.jpg)
 
 
+**[比特币赚来的钱如何支持事工](https://www.asuswebstorage.com/navigate/a/#/s/ADA73CD5113F453CBBEFD2EEF41F8F51Y)**
 
+**[我应该继续挑战做大我的生意吗？](https://www.asuswebstorage.com/navigate/a/#/s/90591C677BB74462923CEA4A74BB8FF8Y)**
 
+**[奉献得越多赚到的就越多吗？](https://www.asuswebstorage.com/navigate/a/#/s/6E24088D35D642BEA34D8E4F1F4A3EEDY)**
 
+**[清教徒杀害了印第安人吗？](https://www.asuswebstorage.com/navigate/a/#/s/68C06A1279554D17B2C0F23BD23C0211Y)**
 
+**[唯独圣经与唯读圣经](https://www.asuswebstorage.com/navigate/a/#/s/AA5D93220DDD4E1CAEE97CE86F242DA8Y)**
 
+**[孩子在学业和服事之间如何平衡](https://www.asuswebstorage.com/navigate/a/#/s/44C6B62A2A2643E1A6BE697E6CEA7000YY)**
 
 **[6月读者群问答（一）](https://www.asuswebstorage.com/navigate/a/#/s/84A821413D6744BA969A01EEE2BD73A6Y)**
 
