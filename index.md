@@ -3,6 +3,14 @@
 ![](https://pic.imgdb.cn/item/6294a03709475431290342bc.jpg)
 
 
+**[我们该向日本学什么？](https://www.asuswebstorage.com/navigate/a/#/s/7543A20258034337BF7FF69172E80FF8Y)**
+
+**[如何在对日商业上找准自己的方向？](https://www.asuswebstorage.com/navigate/a/#/s/3D1F1A829F014DB985F924420DE98791Y)**
+
+**[日本是基督化国家吗？](https://www.asuswebstorage.com/navigate/a/#/s/8C7580FDF5F7431889380A687DC7F7FBY)**
+
+**[基督徒是否高人一等](https://www.asuswebstorage.com/navigate/a/#/s/F7CBE18E43064640B77FEA48400973DCY)**
+
 **[比特币赚来的钱如何支持事工？](https://www.asuswebstorage.com/navigate/a/#/s/ADA73CD5113F453CBBEFD2EEF41F8F51Y)**
 
 **[我应该继续挑战做大我的生意吗？](https://www.asuswebstorage.com/navigate/a/#/s/90591C677BB74462923CEA4A74BB8FF8Y)**
