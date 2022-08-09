@@ -3,7 +3,7 @@
 ![](https://pic.imgdb.cn/item/6294a03709475431290342bc.jpg)
 
 
-**[为什么有的人只信上帝不信耶稣](https://www.asuswebstorage.com/navigate/a/#/s/153533DBD54F44EBBE9FBE6D3337EDDEY)**
+**[为什么有的人只信上帝不信耶稣?](https://www.asuswebstorage.com/navigate/a/#/s/153533DBD54F44EBBE9FBE6D3337EDDEY)**
 
 **[面对经济危机，要不要把养老金和存款取出来以求稳妥？](https://www.asuswebstorage.com/navigate/a/#/s/B624F1FFD49C47D8A634F2A7B85D1B0BY)**
 
