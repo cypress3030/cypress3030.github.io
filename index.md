@@ -2,6 +2,10 @@
 
 ![](https://pic.imgdb.cn/item/6294a03709475431290342bc.jpg)
 
+**[从爱出发的亲子沟通-上集](https://www.asuswebstorage.com/navigate/a/#/s/FCBC3BC1A27D4233AE68C7D2F3725D72Y)**
+
+**[从爱出发的亲子沟通-下集](https://www.asuswebstorage.com/navigate/a/#/s/35AF81D71D4E405BBA603885E91B9F58Y)**
+
 **[教育孩子，父母的“底”在哪里-上集](https://www.asuswebstorage.com/navigate/a/#/s/C814B157B8184B7BB5269ED95CE24F16Y)**
 
 **[教育孩子，父母的“底”在哪里-下集](https://www.asuswebstorage.com/navigate/a/#/s/411778F1EDC8400CAED9B5BD1EF0D245Y)**
@@ -9,6 +13,8 @@
 **[透过电子产品的迷恋探索子亲关系-上集](https://www.asuswebstorage.com/navigate/a/#/s/7AE3285AFC4B43ADB3F6D08D329D292AY)**
 
 **[透过电子产品的迷恋探索子亲关系-下集](https://www.asuswebstorage.com/navigate/a/#/s/C88218436703446DA869B4A6E3EF7D5DY)**
+
+![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
 
 **[为什么有的人只信上帝不信耶稣?](https://www.asuswebstorage.com/navigate/a/#/s/153533DBD54F44EBBE9FBE6D3337EDDEY)**
 
