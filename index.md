@@ -2,6 +2,9 @@
 
 ![](https://pic.imgdb.cn/item/6294a03709475431290342bc.jpg)
 
+**[如何从孩子的角度理解家长，实现自我健康成长-上集](https://www.asuswebstorage.com/navigate/a/#/s/F0BDA89D3C4341B4A859DE045A6ABAA7Y)**
+
+**[如何从孩子的角度理解家长，实现自我健康成长-下集](https://www.asuswebstorage.com/navigate/a/#/s/18A20E58F26C43AFADAED48E503E5C8DY)**
 
 **[子亲关系与情绪管理-上集](https://www.asuswebstorage.com/navigate/a/#/s/741ED4BAF17D41DAB9BD99AACD41DC87Y)**
 
@@ -59,15 +62,17 @@
 
 **[孩子在学业和服事之间如何平衡](https://www.asuswebstorage.com/navigate/a/#/s/44C6B62A2A2643E1A6BE697E6CEA7000YY)**
 
-**[6月读者群问答（一）](https://www.asuswebstorage.com/navigate/a/#/s/84A821413D6744BA969A01EEE2BD73A6Y)**
+![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
 
-**[6月读者群问答（二）](https://www.asuswebstorage.com/navigate/a/#/s/55AF1B037B8B43A195CB8E97ADDA10B8Y)**
+**[读者群问答（一）](https://www.asuswebstorage.com/navigate/a/#/s/84A821413D6744BA969A01EEE2BD73A6Y)**
 
-**[6月读者群问答（三）](https://www.asuswebstorage.com/navigate/a/#/s/3F6476E8716F4BCC8987E6E497AC2B84Y)**
+**[读者群问答（二）](https://www.asuswebstorage.com/navigate/a/#/s/55AF1B037B8B43A195CB8E97ADDA10B8Y)**
 
-**[6月读者群问答（四）](https://www.asuswebstorage.com/navigate/a/#/s/338DD7CF58B8444A8D7D5013923A9C9CY)**
+**[读者群问答（三）](https://www.asuswebstorage.com/navigate/a/#/s/3F6476E8716F4BCC8987E6E497AC2B84Y)**
 
-**[6月读者群问答  (五）](https://www.asuswebstorage.com/navigate/a/#/s/19909E1D408D4E9B882DBFB7A4559F49Y)**
+**[读者群问答（四）](https://www.asuswebstorage.com/navigate/a/#/s/338DD7CF58B8444A8D7D5013923A9C9CY)**
+
+**[读者群问答  (五）](https://www.asuswebstorage.com/navigate/a/#/s/19909E1D408D4E9B882DBFB7A4559F49Y)**
 
 ![](https://pic.imgdb.cn/item/6294bb180947543129260175.png)
 
