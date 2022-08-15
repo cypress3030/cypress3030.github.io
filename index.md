@@ -2,6 +2,11 @@
 
 ![](https://pic.imgdb.cn/item/6294a03709475431290342bc.jpg)
 
+
+**[子亲关系与情绪管理-上集](https://www.asuswebstorage.com/navigate/a/#/s/741ED4BAF17D41DAB9BD99AACD41DC87Y)**
+
+**[子亲关系与情绪管理-下集](https://www.asuswebstorage.com/navigate/a/#/s/8EBF02552AA04317AC30EAE3885F66DBY)**
+
 **[从爱出发的亲子沟通-上集](https://www.asuswebstorage.com/navigate/a/#/s/FCBC3BC1A27D4233AE68C7D2F3725D72Y)**
 
 **[从爱出发的亲子沟通-下集](https://www.asuswebstorage.com/navigate/a/#/s/35AF81D71D4E405BBA603885E91B9F58Y)**
